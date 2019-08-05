@@ -1,1 +1,1 @@
-fk u
+fk u ashome
